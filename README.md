@@ -1,6 +1,6 @@
 <p align="center"> <a href="https://music.youtube.com/watch?v=Ask0vjgtZfc&si=-VjgSL6BRgtCqQnj">RX QUEEN - DEFTONES</a> </p>
 <p align="center"> <img src="https://files.catbox.moe/gw23wu.jpg"> </p>
-<p align="center"> <b>ꨄ︎ 　I LOVE MY BOYFRIEND RAHHHH 03/20 FOREVER 　ꨄ︎</b> </p>
+<p align="center"> <b>ꨄ︎ 　I LOVE MY BOYFRIEND RAHHHH 03/20 FOREVER hes MINE FROTHS　ꨄ︎</b> </p>
 <p align="center"><img src="https://files.catbox.moe/aovyuo.jpg" width="250"></p>
 <p align="center"> hi im knocker / john　𐂯　i use he / it </p>
 <p align="center"> <b>IM 18 MDNI</b> </p>
