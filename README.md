@@ -7,4 +7,5 @@
 <p align="center"> <img src="https://files.catbox.moe/resbyd.gif"> </p> 
 <p align="center"> SUPER COOL AWESOME FRIENDS :-) </p>
 <p align="center"> <a href="https://github.com/haetaes">@HAETAES</a> , <a href="https://github.com/diispatch">@DIISPATCH</a> , <a href="https://github.com/ephemeraljackpot">@EPHEMERALJACKPOT</a> , <a href="https://github.com/NULLSCAPING">@NULLSCAPING</a> </p>
+<p align="center"> <a href="https://github.com/gracerocky">@GRACEROCKY</a> , <a href="https://github.com/metalsonickisser">@METALSONICKISSER</a> , <a href="https://github.com/swiliix">@SWILIIX</a> </p>
 <p align="center"> DONT BE AFRAID TO ASK TO BE ON THE LIST THIS IS JUST WHAT I REMEMBER </p>
